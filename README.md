@@ -53,3 +53,18 @@
 27. De PowerPoint a video (parte 1) https://www.youtube.com/watch?v=cVopivmdkDc 
 
 28. De PowerPoint a video (parte 2) http://www.youtube.com/watch?v=SV2hdOfMDm0 
+------------------
+Shotcut Tutorial: How To Record A Voice-Over!
+https://youtu.be/KelNdcN_Z2g?si=tPhUWNgEpvTJaJgy
+
+How to replace audio or add music in Shotcut | Shotcut tutorial (2023)
+https://youtu.be/qBkEdbThN3g?si=7sIHZhIgTraH4c6l
+
+Shotcut Sound Volume | Make Audio Louder and Quieter Tutorial
+https://youtu.be/_PhOg3MDmww?si=yzfwaCniFf1P4iuY
+
+How to Add Text to Your Video Clip in ShotCut
+https://youtu.be/SEd7QV_kRKo?si=s81HQpyO5cLyoXHx
+
+How to Zoom In the Video Clips in Shotcut
+https://youtu.be/8X6hRj_i-GU?si=IT8cvOuRgb5BmbRC
