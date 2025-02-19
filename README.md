@@ -63,6 +63,9 @@ https://youtu.be/qBkEdbThN3g?si=7sIHZhIgTraH4c6l
 Shotcut Sound Volume | Make Audio Louder and Quieter Tutorial
 https://youtu.be/_PhOg3MDmww?si=yzfwaCniFf1P4iuY
 
+Shotcut Text and Line Effects Part 1
+https://youtu.be/wx-paR2W9s4?si=4jylb3E_zNBEbrkF
+
 How to Add Text to Your Video Clip in ShotCut
 https://youtu.be/SEd7QV_kRKo?si=s81HQpyO5cLyoXHx
 
