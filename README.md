@@ -60,6 +60,9 @@ https://youtu.be/KelNdcN_Z2g?si=tPhUWNgEpvTJaJgy
 How to replace audio or add music in Shotcut | Shotcut tutorial (2023)
 https://youtu.be/qBkEdbThN3g?si=7sIHZhIgTraH4c6l
 
+How To Add Music in Shotcut | Enhancing Videos with Background Music | Shotcut Tutorial 
+https://youtu.be/Y0eVfycCRQY?si=RtDIFauwz4bIMf6M
+
 Shotcut Sound Volume | Make Audio Louder and Quieter Tutorial
 https://youtu.be/_PhOg3MDmww?si=yzfwaCniFf1P4iuY
 
